@@ -1,2 +1,3 @@
 # Welcome to Magooster1000's tutorials.
-______________________________________
+
+Watch tutorials at: [Magooster1000 Projects](https://magnusknisely.wixsite.com/magooster1000).
